@@ -20,6 +20,8 @@ Headphones
 Good vibes
 If have GV^  power bank :)
 
+How configurate go to instruction.
+
 
 
 
